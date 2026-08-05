@@ -1,66 +1,60 @@
-# Cruz Construction – Proof
+# Proof
 
 ## Outreach
 
-- Cruz Construction is a third-generation, family-owned excavation, sitework, and paving company that has delivered civil construction services since 1996.
-- Cruz Construction holds California contractor license 741126 and Nevada contractor license 41648A and maintains a Better Business Bureau profile in Reno, Nevada.
-- Cruz Construction's portfolio shows completed residential, commercial, and public works projects, including paving work for GMC, a Spanish Springs U-Haul, the Tahoe Medical Center, and high-end Incline Village homes.
+- Cruz Construction has been delivering civil construction services since 1996, from paving parking lots to building private roads.
+- The third-generation, family-owned company holds contractor licenses CA 741126 and NV 41648A and is accredited by the Better Business Bureau.
+- Completed work spans commercial parking lots for U-Haul, GMC, and Tahoe Medical Center as well as residential paver and heated-driveway projects in Incline Village.
 
-## Company Background
+## Company Standing
 
-- Cruz Construction Co. Inc is a third generation, family-owned excavation, sitework and paving company.
-- Cruz Construction has been providing civil construction services and materials to private companies and owners since 1996.
-- Cruz Construction is committed to providing quality construction services and materials to private industry, companies, owners, and public agencies.
-- Cruz Construction has the equipment, construction materials, experience, people, and bonding capacity to deliver almost any size project, from paving parking lots to building private roads.
-- Cruz partners are benefited by its experienced field supervision, skilled labor force, and reliable equipment.
-- Cruz Construction is fully invested in professionalism, with modern equipment, and knowledgeable courteous crews.
-- Cruz Construction handles all phases of work, from excavation to topsoil, sand and gravel for erosion control, septic systems, defensible space, or water and sewer lines.
-- "Whether it is under the surface, a new surface, resurfacing or maintenance, you can be confident we'll do your job right the first time!"
+- Third-generation, family-owned excavation, sitework and paving company.
+- Providing civil construction services and materials to private companies and owners since 1996.
+- Fully invested in professionalism, with modern equipment and knowledgeable, courteous crews.
+- Experienced field supervision, skilled labor force, and reliable equipment.
+- Equipment, construction materials, experience, people, and bonding capacity to deliver almost any size project.
+- Paving craftsmen match color schemes, patterns, and textures for superior aesthetics.
+- Partners with local material suppliers providing quality aggregate, asphaltic concrete, sealcoat, pavers, and other materials.
+- Committed to quality construction services and materials for private industry, companies, owners, and public agencies.
+- Confidence promise: "We'll do your job right the first time!" - handles under-surface work, new surfaces, resurfacing, and maintenance.
 
-## Credentials
+## Credentials & Memberships
 
 - Contractor Licenses: CA 741126, NV 41648A.
-- Cruz Construction is linked to a Better Business Bureau business review profile for engineering contractors-general in Mound House, NV (bbb.org/reno/business-reviews/engineering-contractors-general/cruz-construction-company-in-mound-house-nv-102581), displaying the BBB logo sitewide.
-- Referenced categories include Featured Projects, Recent Projects, Commercial Projects, Residential Projects, and Public Works.
-
-## Service Area
-
-- Throughout the Carson Valley, Reno, Washoe Valley, Gardnerville, Dayton, Minden, and Lake Tahoe regions, Cruz excavates, preps sites for work, and delivers paving solutions from asphalt, concrete, and pavers that withstand the harsh Sierra Nevada weather.
+- Better Business Bureau accredited member (BBB Reno) - engineering contractors/general, Cruz Construction Company, Mound House, NV.
+- Active on Facebook (cruzconstructionnv) and Instagram (cruz_construction_co_inc).
+- Serves the Carson Valley, Reno, Washoe Valley, Gardnerville, Dayton, Minden, and Lake Tahoe regions.
 
 ## Completed Projects
 
-### Commercial
+Commercial:
 
-- Commercial: Mass Grading (cruzconstruction.com/mass-grading/) - categorized as a Commercial and Featured Project.
-- Commercial: GMC Paving (cruzconstruction.com/commercial-gmc-paving/), a 2023 paving job documented with 25+ project photos.
-- Commercial: Spanish Springs - U-Haul (cruzconstruction.com/commercial-spanish-springs-u-haul/), a U-Haul location paving project.
-- Commercial: High Altitude - Parking Lot (cruzconstruction.com/project-1/), a parking lot project at High Altitude.
+- Commercial: Mass Grading (featured project).
+- Commercial: GMC Paving.
+- Commercial: Spanish Springs – U-Haul.
+- Commercial: High Altitude – Parking Lot.
 
-### Residential
+Residential:
 
-- Residential: Xeriscapes (cruzconstruction.com/residential-xeriscapes/), a front-yard xeriscape job for a neighbor.
-- Residential: Incline Village - Pavers (cruzconstruction.com/residential-incline-village-pavers/).
-- Residential: Incline Village - Pavers & Heated Driveway (cruzconstruction.com/residential-incline-village-pavers-heated-driveway/).
-- Residential: Carson City - Stone Work & Pavers (cruzconstruction.com/residential-carson-city-stone-work-pavers/).
+- Residential: Xeriscapes (featured project; with photos from before and after).
+- Residential: Incline Village – Pavers (featured project).
+- Residential: Incline Village – Pavers & Heated Driveway (featured project).
+- Residential: Carson City – Stone Work & Pavers.
 
-### Public Works
+Public Works:
 
-- Public Works: Carson City - Tahoe Medical Center - Parking Lot (cruzconstruction.com/project-3/), a parking lot project for the Tahoe Medical Center in Carson City.
+- Public Works: Carson City – Tahoe Medical Center – Parking Lot.
 
-## Guarantees & Offers
+Portfolio gallery features dozens of completed residential and commercial jobs across the region.
 
-- "Call 775-883-6161 or Complete the Contact Form To Get Your Free Estimate Today!"
-- "We would be happy to provide you with a free, no-obligation estimate for your job."
-- "An estimator will contact you within a week to discuss setting up an appointment."
+## Capabilities Demonstrated
 
-## Services Demonstrated
-
-- Sitework: foundation preparation by excavation or land clearing, rough or initial grading, final grading, landscaping, construction and paving of driveways, addition of walkways, preparation and approval of permits and fees, septic and sewer systems, well or water.
+- Sitework: foundation preparation by excavation or land clearing, rough/initial grading, final grading, landscaping, construction and paving of driveways, addition of walkways, preparation and approval of permits and fees, septic and sewer systems, well or water.
 - Excavating: water/sewer/gas, demolition, trucking, backhoe, topsoil/sand/gravel, material handling, erosion control, septic systems, defensible space and BMPs, sewer and water lines, water truck, wine cellars.
 - Paving: asphalt sealing and paving, concrete, pavers, BMPs (Best Management Practices).
-- Cruz works with local material suppliers and local facilities that provide quality aggregate, asphaltic concrete, sealcoat, pavers, and other materials.
+- Delivers paving solutions from asphalt, concrete, and pavers that withstand harsh Sierra Nevada weather.
 
-## Contact & Presence
+## Customer-Facing Offer
 
-- 19 Cygnet Dr, Mound House, NV 89706 | 775-883-6161 | info@cruzconstruction.com.
-- Follow Us on Facebook (cruzconstructionnv) and Instagram (cruz_construction_co_inc) with the hashtag #cruzconstructionnv.
+- Free, no-obligation estimate for any job, with an estimator contacting customers within a week of inquiry.
+- Contact and CTA: Call 775-883-6161 or complete the contact form.
